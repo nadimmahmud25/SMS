@@ -1,3 +1,1 @@
-# -
-hello human
-nadimnqdjnjem asjkjjqw
+# School
